@@ -1,3 +1,4 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/099vc02946.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/18.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/19.jpg@dummy=1626972942959.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Washington-public/blob/main/23.jpg)
